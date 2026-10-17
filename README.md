@@ -10,3 +10,6 @@ sejauh ini, seluruh acara yang sudah dilaksanakan SERU dan MENARIk semua! banyak
 
 ## Kesan Pesan Cluster 12 Sejauh Ini 
 Untuk sejauh ini, untuk fasilitator cluster 12 itu menurutku BAIK dan INFORMATIF banget, mereka selalu mengusahakan semua anggota cluster nya agar tidak ketinggalan informasi terbaru yang penting, mereka juga sudah akrab dengan teman teman cluster ku. Untuk teman teman se cluster ku, mereka sangat asik buat diajak ngobrol dan juga suka membantu ketika aku punya kesulitan tentang tugas tugas dari INTRIVIA
+
+## Harapan Kuliah 
+Harapan terbesar saya adalah saya ingin menjadi Software Engineer yang bisa menghasilkan manfaat bagi orang lain dan juga bisa menjadi inspirasi bagi orang lain
